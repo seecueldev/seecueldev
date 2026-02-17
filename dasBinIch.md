@@ -1,0 +1,6 @@
+- 👋 Hallo, ich bin @seecueldev
+- 👀 Ich interessiere mich für Technik und IT
+- 🌱 Ich lerne gerade für meinen Abschluss und das Fachabi
+- 🖥️ Ich habe einen Discord Server mit eigenem Bot etc: https://dsc.gg/hobbylosdc
+- 📫 Wie man mich erreicht: Discord
+- ⚡ Lustige Tatsache: Ich bin absolut Unlustig... Spaß
